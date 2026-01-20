@@ -3,4 +3,4 @@ genshin, honkai starrail, vocaloid, prosekai(i only play for the vocaloids thoug
 stanley parable, hetalia, umamusume, ena, persona5, bayonetta, SPLATOON!!!
 maretu, utsu-p, slipknot, linkinpark and rammstein
 
-fujoshits dni
+fujoshits and under 16 dni
