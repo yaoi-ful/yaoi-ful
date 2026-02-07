@@ -8,5 +8,4 @@ half-life2, tf2, portal, deadplate, puella magi madoka magica, SPLATOON!!!
 maretu, utsu-p, slipknot, linkinpark and rammstein
 
 ---
-
-fujoshits and under 16 dni
+femcels/incels, fujoshits and under 16 dni
