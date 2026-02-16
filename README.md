@@ -9,3 +9,4 @@ maretu, utsu-p, slipknot, linkinpark and rammstein
 
 ---
 femcels/incels, fujoshits and under 16 dni
+roblox players and mcyt fans too u stink
