@@ -1,3 +1,7 @@
+hi sorry i dont int first because i have pretty bad social anxiety (at most ill crown u or smth)
+
+
+---
 things i like:
 genshin, honkai starrail, zzz, vocaloid, prosekai(i only play for the vocaloids though)
 
