@@ -7,7 +7,7 @@ genshin, honkai starrail, zzz, vocaloid, prosekai(i only play for the vocaloids 
 
 stanley parable, hetalia, ena, persona5, bayonetta, 
 
-half-life2, tf2, portal, deadplate, puella magi madoka magica, SPLATOON!!!
+to your eternity, tf2, portal, deadplate, puella magi madoka magica, SPLATOON!!!
 
 maretu, utsu-p, slipknot, linkinpark and rammstein
 
