@@ -12,7 +12,7 @@ to your eternity, tf2, portal, deadplate, puella magi madoka magica, SPLATOON!!!
 maretu, utsu-p, slipknot, linkinpark and rammstein
 
 ---
-femcels/incels, fujoshits and under 16 dni
+femcels/incels, fujoshits, dottore fans/simps and under 16 dni
 
 roblox players, mcyt and/or tadc fans and THOSE prsk fans too u stink
 
