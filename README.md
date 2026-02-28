@@ -4,7 +4,9 @@ pls don't start drama with me i dont handle it well
 
 i might have bpd but until i take a proper diagnosis take it with a grain of salt i dont wanna be seen as a self-diagnoser and also i make freaky jokes soo...
 
-i like varka, columbina, flins and madoka
+i like varka, columbina, flins and madoka and i ship madohomu, flinvarka, sandrina and flineffa
+
+tbh i just ship my fave characters even if they never spoke to eachother (as long as its not toxic or a proship ofc)
 
 ---
 
