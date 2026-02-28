@@ -14,6 +14,6 @@ maretu, utsu-p, slipknot, linkinpark and rammstein
 ---
 femcels/incels, fujoshits and under 16 dni
 
-roblox players, marvel/dc fans, mcyt and/or tadc fans and THOSE prsk/resident evil fans too u stink
+roblox players, marvel/dc fans, mcyt and/or tadc fans and THOSE prsk/hetalia fans too u stink
 
 alsoooo i avoid "systems" bc most of u fake it so if you claim to have DID then ur on thin ice. 
