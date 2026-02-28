@@ -10,7 +10,11 @@ tbh i just ship my fave characters even if they never spoke to eachother (as lon
 
 ---
 
-interests: genshin, hsr, vocaloid, prsk, hetalia, serial experiments lain, puella magi madoka magica, to your eternity, persona 5 (didn't finish it yet though), bayonetta
+interests: genshin, hsr, splatoon, needy streamer overload, vocaloid, prsk, hetalia, serial experiments lain, puella magi madoka magica, stanley parable, portal, to your eternity, persona 5 (didn't finish it yet though), bayonetta
+
+i also play a bit of stardew valley and waterpark sim but not much
+
+my fave song artists : ghost and pals, maretu, utsu-p, slipknot, rammstein and linkin park (yeah ik corny emo shit i cant help it)
 
 
 dni: basic dni, trump supporters, proshippers, fujoshits (and also people that hate straight ships ur so corny) and under 16... other than that i block freely so just don't be a weirdo
