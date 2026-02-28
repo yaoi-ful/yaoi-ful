@@ -13,6 +13,6 @@ tbh i just ship my fave characters even if they never spoke to eachother (as lon
 interests: genshin, hsr, vocaloid, prsk, hetalia, serial experiments lain, puella magi madoka magica, to your eternity, persona 5 (didn't finish it yet though), bayonetta
 
 
-dni: proshippers, fujoshits (and also people that hate straight ships ur so corny) and under 16... other than that i block freely so just don't be a weirdo
+dni: basic dni, trump supporters, proshippers, fujoshits (and also people that hate straight ships ur so corny) and under 16... other than that i block freely so just don't be a weirdo
 
 systems are on thin ice
