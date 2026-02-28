@@ -2,7 +2,7 @@ hi im a trans gay guy who likes anime guys and has fat social anxiety
 
 pls don't start drama with me i dont handle it well
 
-i might have bpd but until i take a proper diagnosis take it with a grain of salt i dont wanna be seen as a self-diagnoser and also i make freaky jokes soo...
+i might have bpd but until i take a proper diagnosis take it with a grain of salt i dont wanna be seen as a self-diagnoser and also i make freaky jokes... i can also sound a bit blunt and mean but i swear i bear no ill intent
 
 i like varka, columbina, flins and madoka and i ship madohomu, flinvarka, sandrina and flineffa
 
