@@ -1,21 +1,14 @@
-hi sorry i dont int first because i have pretty bad social anxiety (at most ill crown u or smth)
+hi im a trans gay guy who likes anime guys and has fat social anxiety
 
-<img width="333" height="225" alt="Zrzut ekranu 2026-02-28 144922" src="https://github.com/user-attachments/assets/7a4579d7-880e-4353-bd54-2aef1b0a6c64" />
+pls don't start drama with me i dont handle it well
 
-IM LITERALLY A GAY GUY? DID YOU NOT READ MY RENTRY/STRAWPAGE? and i dont fetishize gay people??
----
-things i like:
-genshin, honkai starrail, zzz, vocaloid, prosekai(i only play for the vocaloids though)
+i might have bpd but until i take a proper diagnosis take it with a grain of salt i dont wanna be seen as a self-diagnoser and also i make freaky jokes soo...
 
-stanley parable, hetalia, ena, persona5, bayonetta, 
-
-to your eternity, tf2, portal, deadplate, puella magi madoka magica, SPLATOON!!!
-
-maretu, utsu-p, slipknot, linkinpark and rammstein
+i like varka, columbina, flins and madoka
 
 ---
-femcels/incels, fujoshits and under 16 dni
 
-roblox players, marvel/dc fans, mcyt and/or tadc fans and THOSE prsk/hetalia fans too u stink
+interests: genshin, hsr, vocaloid, prsk, hetalia, serial experiments lain, puella magi madoka magica, to your eternity, persona 5 (didn't finish it yet though), bayonetta
 
-alsoooo i avoid "systems" bc most of u fake it so if you claim to have DID then ur on thin ice. 
+
+dni: proshippers, fujoshits and under 16... other than that i block freely so just don't be a weirdo
