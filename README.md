@@ -1,6 +1,5 @@
 hi sorry i dont int first because i have pretty bad social anxiety (at most ill crown u or smth)
 
-someone asked me how i got fujos in my dni when i have yaoi-ful as my github... do you not know gay people actually exist irl or something?????? im literally gay and male
 
 ---
 things i like:
