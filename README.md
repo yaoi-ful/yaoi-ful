@@ -2,8 +2,7 @@ hi sorry i dont int first because i have pretty bad social anxiety (at most ill 
 
 <img width="333" height="225" alt="Zrzut ekranu 2026-02-28 144922" src="https://github.com/user-attachments/assets/7a4579d7-880e-4353-bd54-2aef1b0a6c64" />
 
-IM LITERALLY A GAY GUY? DID YOU NOT READ MY RENTRY/STRAWPAGE? i dont fetishize gay people like u apparently
-
+IM LITERALLY A GAY GUY? DID YOU NOT READ MY RENTRY/STRAWPAGE? and i dont fetishize gay people??
 ---
 things i like:
 genshin, honkai starrail, zzz, vocaloid, prosekai(i only play for the vocaloids though)
