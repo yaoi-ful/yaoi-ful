@@ -12,3 +12,5 @@ interests: genshin, hsr, vocaloid, prsk, hetalia, serial experiments lain, puell
 
 
 dni: proshippers, fujoshits and under 16... other than that i block freely so just don't be a weirdo
+
+systems are on thin ice
